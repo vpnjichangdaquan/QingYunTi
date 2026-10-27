@@ -15,7 +15,7 @@
 
 青云梯注册入口：
 
-[青云梯官网注册入口](https://qytcc01.qingyunti.pro/register?aff=eIQ45COF)
+[青云梯官网注册入口](https://a.wwaann.com/?s=qingyunti)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -479,7 +479,7 @@
 
 青云梯官方注册入口：
 
-[青云梯官方注册入口](https://qytcc01.qingyunti.pro/register?aff=eIQ45COF)
+[青云梯官方注册入口](https://a.wwaann.com/?s=qingyunti)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
